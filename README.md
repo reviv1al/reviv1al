@@ -3,7 +3,7 @@
 <img width="1150" height="644" alt="image" src="https://github.com/user-attachments/assets/938e5c10-4b0e-48da-8c1d-a3456359e7f7" />
 
                    
-                           ᶦᵐ ᵖʳᵒᵘᵈ ᵒᶠ ʸᵒᵘ
+                           ᶦᵐ ᵖʳᵒᵘᵈ ᵒᶠ ʸᵒᵘ 
     
                      ૮꒰ ྀི Wis/spoke: she/her_ ꒱ა
 
