@@ -5,9 +5,9 @@
                    
                            ᶦᵐ ᵖʳᵒᵘᵈ ᵒᶠ ʸᵒᵘ
     
-                     ૮꒰ ྀི Wis/wisteria: she/her_ ꒱ა
+                     ૮꒰ ྀི Wis/spoke: she/her_ ꒱ა
 
-         no c*h/ask                 
+         no c-h/ask (c-h ok if youre mcyt)                
                                             afk|| W2I
           
 
