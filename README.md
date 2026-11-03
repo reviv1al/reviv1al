@@ -6,8 +6,23 @@
                           
                           ૮꒰ ྀི Wis/wisteria: she/her_ ꒱ა
 
-          no c*h/ask
+          no c*h/ask                 
+                                        afk|| W2I
+          
 
+
+
+<img width="495" height="40" alt="image" src="https://github.com/user-attachments/assets/ec981215-70ae-4a62-93e9-00e1d12eb2e5" />
+
+
+
+
+⠀⠀⠀⢀⣤⠤⣄⠀⠀⠀⠀⣠⠤⣄⠀⠀⠀
+⠀⠀⠀⢠⠞⠀⠀⠈⢷⠀⠀⡜⠃⠀⠈⢳⠀⠀
+⠀⠀⠀⣾⠀⠀⠀⠀⠘⡇⢰⠅⠀⠀⠀⠸⡇⠀
+⠀⠀⠀⣿⠀⠀⠀⠀⠀⡇⣾⠀⠀⠀⠀⢸⠃⠀
+⠀⠀⠀⢹⡀⠀⠀⠀⠀⡇⣿⠀⠀⠀⠀⡾⠀⠀
+⠀⠀⠀⠸⡇⠀⠀⠀⠀⠷⠿⠀⠀⠀⢰⠇⠀⠀
 
 
 
