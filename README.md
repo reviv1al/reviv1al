@@ -1,19 +1,5 @@
+<img width="1199" height="737" alt="Untitled168_20261112180632" src="https://github.com/user-attachments/assets/3d0b96a6-5486-4f88-a4a1-281d7b61bf9e" />
 
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E6E6E6&width=435&lines=Im+proud+of+you." alt="Typing SVG" /></a>
-
-
-<img width="1199" height="737" alt="image" src="https://github.com/user-attachments/assets/0acc6870-50da-44fd-a538-2307a223e7cb" />
-
-<img width="1441" height="737" alt="Untitled158_20261108183247" src="https://github.com/user-attachments/assets/3ee9b991-dc21-4bf9-a1b7-5bd139ecdfa5" />
-
-
-
-
-
-
-  
-  
-  
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=EA7EFF&width=435&lines=Im+proud+of+you" alt="Typing SVG" /></a>
