@@ -4,6 +4,8 @@
   <img width="736" height="1308" alt="bc1b52bef8cb983264e7cb49d782006e" src="https://github.com/user-attachments/assets/75b1b161-7f84-4f20-a60b-d9ec9e573111" />
 
  
- 
+
+
   
   [discord](https://discord.com/users/1266411395688169555 "discord") ⑅ [strawpage](https://reviv1al.straw.page "With a Title") ⑅ [CT awareness](https://docs.google.com/document/u/0/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/mobilebasic "With a Title") by [sera741](https://github.com/sera741# "With a Title")
+<img width="500" height="312" alt="a2c728a83ceac15a92d8646063905907" src="https://github.com/user-attachments/assets/dfbaf9e4-ff10-4754-bc65-77fa5d04c8d3" />
