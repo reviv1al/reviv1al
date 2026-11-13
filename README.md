@@ -6,4 +6,4 @@
  
  
   
-  [discord](https://discord.com/users/1266411395688169555 "discord") ⑅ [strawpage](https://reviv1al.straw.page "With a Title") ⑅ [CT awareness](https://docs.google.com/document/u/0/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/mobilebasic "With a Title") made by [sera741](https://github.com/sera741# "With a Title")
+  [discord](https://discord.com/users/1266411395688169555 "discord") ⑅ [strawpage](https://reviv1al.straw.page "With a Title") ⑅ [CT awareness](https://docs.google.com/document/u/0/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/mobilebasic "With a Title") by [sera741](https://github.com/sera741# "With a Title")
